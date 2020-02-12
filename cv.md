@@ -2,7 +2,6 @@
 
 | Kazakhstan, Karaganda city  
 | _Contact:_ 0077074725461  
-
 | _e-mail:_ elmira.shalginbayeva@gmail.com
 
 ---
